@@ -1,4 +1,4 @@
 # Dzmitry Salanenka
-## **tel.+375297486547**
+## **tel.+(375 29) 748 65 47**
 *e-mail: dimg1515@gmail.com*
-## tel.+375255327908
+## tel.+(375 25) 5327908
